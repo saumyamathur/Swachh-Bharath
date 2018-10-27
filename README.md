@@ -1,2 +1,0 @@
-# Swachh-Bharath
-# Swachh-Bharath
